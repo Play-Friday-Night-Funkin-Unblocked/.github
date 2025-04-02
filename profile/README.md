@@ -3,6 +3,8 @@
 ## Play Friday Night Funkin Unblocked Anytime, Anywhere!
 Are you ready to dive into the **ultimate** rhythm battle? **Friday Night Funkin (FNF) Unblocked** is here to give you an **epic** and **unstoppable** gaming experience! Whether you’re at school, work, or just chilling at home, you can enjoy the game **offline** and **unblocked**, making it perfect for any situation.
 
+## <a href="https://izigames.net/">👉 Friday Night Funkin Unblocked 👈</a>
+
 ## What is Friday Night Funkin?
 **Friday Night Funkin (FNF)** is a **legendary** music rhythm game where players engage in **fiery** rap battles. Step into the shoes of **Boyfriend**, a fearless rapper who must prove his skills by defeating a lineup of **dark** and **mystic** opponents in musical duels. The game features a unique blend of **retro** and **neon** aesthetics, combined with **blazing** beats that will keep you hooked for hours!
 
